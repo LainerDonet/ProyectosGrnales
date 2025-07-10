@@ -21,4 +21,3 @@ Mantener centralizadas mis ideas y poder retomarlas fácilmente desde cualquier 
 
 ---
 
-Si lo deseas, puedo ayudarte a agregar una tabla de contenido o secciones adicionales, como "Cómo usar", "Requisitos", o "Licencia". ¿Te gustaría algo más detallado?
